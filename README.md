@@ -1,4 +1,4 @@
-# jifryrose.github.io
+# Sneha_CM.github.io
 
 
 My Portfolio!
